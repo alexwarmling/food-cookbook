@@ -14,3 +14,9 @@
 11. 250ml of water
 12. 1 table spoon cornflour diluted with 50ml of waterc
 13. chard to your liking
+
+## Prepare
+1. Cook the pasta aldente while making the sauce
+2. Use a large saucepan or a wok, put the olive oil and saute the onion a little, do not need to gild
+3. Then add the meat and saute
+4. Posit for yakissoba and the soy sauce, cook for about 3 minutes over medium heat
